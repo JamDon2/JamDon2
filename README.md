@@ -2,7 +2,7 @@
 
 You can contact me on the following platforms:
 - Discord: JamDon2#0001
-- Keybase: jamdon2
+- Keybase: [jamdon3](https://keybase.io/jamdon3/)
 - Email: github@jamdon2.dev
 
 <!---
